@@ -39,7 +39,7 @@ Developed by **Muhammed Mustafa Geldi** 🚀
 
 Feel free to contribute or report issues!
 
-🔗 [Your GitHub Profile](https://github.com/muhammedmustafageldi)
+🔗 [Muhammed Mustafa Geldi](https://github.com/muhammedmustafageldi)
 
 ---
 
